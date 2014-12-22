@@ -36,9 +36,283 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The ensamples of vertue and vice, gathered oute of holye scripture. By Nicolas Hanape patriarch of I
+
+1. To the moste noble, most excellent, and mooste vertuous Lady Elizabeth. Quene of Englande, Fraunce, and Irelande, defender of the faith. &c. Thomas Paynel wisheth all felicity.
+
+1. ¶An exhortation to the study of holy scripture.
+
+1. ¶ A Table of the Chapiters.
+Imprinted at London by Ihon Tisoale, dwelling in Knyght Riders streat. Cum priuilegio ad imprimendum
 #####Body#####
-The ensamples of vertue and vice, gathered oute of holye scripture. By Nicolas Hanape patriarch of I
+
+1. Of Miracles shewed by the deuine power of God. ¶The first Chapter.
+
+1. ¶Of Goddes prouidence and secreat iudgementes. ¶The second Chapter.
+
+1. ¶Of the benignitie of God to hys seruauntes. ¶The third Chapter.
+
+1. ¶Of deuine consolation. ¶The fourth chapter.
+
+1. ¶Of the benediction and blessing that God geueth vnto man. ¶The .v. chapter.
+
+1. ¶Of the maledictyon and curse, wherwith god doth curse man. ¶The .vi. Chapter.
+
+1. ¶Of the blessing wherewith man blesseth God. ¶The .vii. Chapter.
+
+1. ¶Of the benediction and blessing wherwith man doth blesse man. ¶The viii. chapter.
+
+1. ¶ Of the malediction and cursse wherwith man dothe cursse man. ca. ix.
+
+1. ¶ Of the seuerite of god against the wicked. ca. x.
+
+1. ¶Of the anger and fury of God.
+
+1. ¶ That God dothe more regard the intent of the doer, then the worke it self. ¶ The .xii. Chapter.
+
+1. ¶That God at times doth tempt and proue man. The .xiii. chapter.
+
+1. ¶That man should not tempt God. ¶The .xiiii. Chapter.
+
+1. Of vowes. Ca. xv.
+
+1. ¶ Of Prayer. Ca. xvi.
+
+1. ¶ Of weping & wayling. ca. 17.
+
+1. ¶ Of swearing. ca. xviii.
+
+1. ¶Of the obseruation and keping of the Sabboth day. Capit. xix.
+
+1. ¶ Of the reuerence that ought to be done & exhibited to Gods Temple. ca. xx.
+
+1. ¶Of the adoration and worshipping of God. Ca.xxi.
+
+1. ¶Of Idolatry. Ca. xxii.
+
+1. Of blasphemy against God. Ca. 23.
+
+1. ¶ Of Goddes preceptes and commaundemētes & of the obseruation and kepinge of them. ca. xxiiii.
+
+1. ¶Of obedience and disobedience. Ca. xxv.
+
+1. ¶Of holy scripture. Ca. xxvi.
+
+1. ¶Of good exhortation, and predication of the word of god. Cap. xxvii.
+
+1. ¶Of euil counsels and perswasions. Ca. xxviii.
+
+1. Of hearing the word of God. Ca. xxix.
+
+1. ¶Of the apparitions and visions shewed in the olde tyme. Capitu. xxx.
+
+1. ¶Of good angelles. Capi. xxxi.
+
+1. ¶Of euill Spirites. Ca. xxxii.
+
+1. ¶Of the immortality of the resonable soule. Ca. xxxiii.
+
+1. ¶Of the faith that man shuld haue vnto God. Cap. xxxiiii.
+
+1. ¶Of the fidelitye that ought to be kept to man. Capi. xxxv.
+
+1. ¶Of quietnesse and illustration of the minde. Cap. xxvi.
+
+1. ¶Of longanimity. ¶Capit. xxxvii.
+
+1. ¶Of the feare of God. Capi. xxxviii.
+
+1. ¶Of the fear, wher with the euill feare those that be good. ¶Capi. xxxix.
+
+1. ¶Of the loue of god. Capi. xl.
+
+1. ¶Of the loue that man ought to haue to his neighboure. Cap. xli.
+
+1. ¶Of Enuy. ¶Capitu. xlii.
+
+1. ¶Of brotherly reprehention. Capi. xliii.
+
+1. ¶Of the compassiō that man shuld haue to his neighbor. ¶Ca. xliiii.
+
+1. Of hospitalyte. Capi. xlv.
+
+1. ¶Of amitie and loue. Capi. 46
+
+1. Of enmite and hatred. Capi. xlvii.
+
+1. ¶Of peace and concorde. Cap. xlviii.
+
+1. ¶Of vnite and common consent. Capi. xlix
+
+1. ¶Of discorde, strife and debate. Ca. l.
+
+1. ¶Of good zele against synners. Capi. li.
+
+1. ¶Of vndiscrete zele. Capit. lii.
+
+1. ¶ Of prudency and discretion. Capitulo .liii.
+
+1. ¶Of deceit and subtlety. Capi. liiii.
+
+1. ¶Of the erudition of Chyldren. Cap. lv.
+
+1. ¶ That it is a pearillous thing not to agre to good counsell. Ca. lvi.
+
+1. ¶Of suspition and false credulity. Ca. lvii.
+
+1. ¶That holye and good men suffer certaine thinges to be done, but not gladlye. ¶Capi. lviii.
+
+1. Of Iustice and equitie. Capitu. lix.
+
+1. ¶Of the good and euill iudgemētes of men. Capi. lx.
+
+1. ¶Of penaunce. Ca. lxi.
+
+1. ¶Of the honoure due vnto our parentes. Capitu. lxii.
+
+1. ¶Of thankes geuing for the benefites of God. Capi. lxiii.
+
+1. ¶Of gratitude for the benefites of man accepted. ca. lxiiii.
+
+1. ¶Of ingratitude. Capitu. lxv.
+
+1. That truthe engendreth hatred. Ca. lxvi.
+
+1. ¶Of lies and lesinges. ¶Capitu. lxvii.
+
+1. ¶Of Treason. Capitu. lxviii.
+
+1. ¶Of adulation anf flatery. Cap. lxix.
+
+1. ¶Of derision, and contumelious reprofe. Ca. lxx.
+
+1. ¶Of Detractors and euel speakers. Capi. lxxi.
+
+1. ¶Of Liberalite mercye and largenes. Capi. lxxii.
+
+1. ¶Of Couetiousnes. Capitu. lxxiii.
+
+1. ¶Of Pouerty. Ca. lxxiiii.
+
+1. ¶Of hipocrisy and dissimulation. Ca. lxxv.
+
+1. ¶Of the receayte of gyftes and rewardes. Capitu. lxxvi.
+
+1. ¶Of Fortitude. ¶Cap. lxxvii.
+
+1. ¶Of Confydence and magnanimity. Ca. lxxviii.
+
+1. ¶Of pacience and mekenesse in iniuries and torments. Capi. lxxix.
+
+1. ¶Of constancy and continuaunce in purposes. Cap. lxxx.
+
+1. ¶Of bodelye warre and victory most commenly obtained. Capi. lxxxi.
+
+1. ¶Of Impacience and murmuring. Cap. lxxxii.
+
+1. ¶Of Pusillanimity. Capitu. lxxxiii.
+
+1. ¶Of Fortitude and strength to do euel. ¶Ca. lxxxiiii.
+
+1. ¶Of Murther. Capi. lxxxv.
+
+1. Of diuers slaughters of men. Capi. lxxxvi.
+
+1. ¶Of abstinence and sobriety. Capi. lxxxvii.
+
+1. ¶Of glotony and dronkennesse. Cap. lxxxviii.
+
+1. ¶Of matrimony. Capitu. lxxxix.
+
+1. ¶Of Chastity. Cap. lxxxx.
+
+1. ¶Of luxuriousnesse, and incontinency. Capit. xci.
+
+1. ¶Of vnwise lokes. Capit. xcii.
+
+1. ¶Of silence and clattering. Capi. xciii.
+
+1. ¶Of carnall effection. Capitu. xciiii.
+
+1. ¶ Of the Ire and anger of man throughe zeale and loue. Capi. xcv.
+
+1. ¶Of the anger of man through vice. Ca. xcvi.
+
+1. ¶Of Humility. Capi. xcvii.
+
+1. ¶Of Pryde. Cap. xcviii.
+
+1. ¶Of vayne bostinge. and crakinge. Ca. xcix.
+
+1. ¶Of elections. Capitu. C.
+
+1. ¶Of good Princes and Prelates. Ca. Ci.
+
+1. ¶Of euil princes and prelates. Capi. Cii.
+
+1. ¶Of ambitious persons. Capitu. Ciii.
+
+1. ¶Of the deuels temptation. Ca. Ciiii.
+
+1. ¶ Of synne in generall, and of diuers paines which follow sinne. Ca. Cv.
+
+1. ¶Of confession of sinnes Capi. Cvi.
+
+1. ¶Of the hardnesse and obstinacye of the wicked. Capitu. Cvii.
+
+1. ¶Of the peruersity of certayne menne. Capitu. Cviii.
+
+1. ¶Of the wickednesse of tirauntes. Ca. Cix.
+
+1. ¶Of the oppression of the good, by the euil. Capi. Cx.
+
+1. ¶Of tribulation, and the vtilitye there of. Capi. Cxi.
+
+1. ¶Of the multitude of euyll menne. Capi. Cxii.
+
+1. ¶Of good men which lurked, and were as vnknown among the euyll. Cap. Cxiii.
+
+1. ¶Of the mobility, and inconstancy of the people. Ca. Cxiiii.
+
+1. ¶Of good operations and workes. ¶Capitu. Cxv.
+
+1. ¶Of mans true intention in doing of his workes. Cap. Cxvi.
+
+1. ¶Of Slouthfulnesse and negligence. ¶Capitu. Cxvii.
+
+1. ¶ Of the good towardnesse of children. ¶Capitu. Cxviii.
+
+1. ¶Of the societie and felowshyp of good men. Ca. 119.
+
+1. ¶Of the society and fellowshyp of euell men. Capi. Cxx.
+
+1. ¶Of good prosperity. Capitu. Cxxi.
+
+1. ¶ Of worldly curiosity. Capi. Cxxii.
+
+1. ¶Of the greate faithe of wemen. Capi. Cxxiii.
+
+1. ¶Of the wisdome of wemen. Capi. Cxxiiii.
+
+1. ¶Of the pitye and compassion of wemen. Cap. Cxxv.
+
+1. ¶Of the fortitude and strength of wemen. ca. cxxvi.
+
+1. ¶Of the auiditye and gredinesse of wemen. Ca. Cxxvii.
+
+1. ¶Of the deceitfulnesse of wemen. Ca. Cxxviii.
+
+1. ¶Of the folyshe and vndiscrete cōmunication of wemen Ca. C.xxix.
+
+1. ¶Of the superfluous ornamentes and raimente of wemen. Capi. cxxx.
+
+1. ¶Of deathe in generall. Cap. Cxxxi.
+
+1. Of sepultures and burials. Ca. cxxxii.
+
+1. ¶Of the horrible death of wicked and euyll men. Capitu. Cxxxiii.
+
+1. ¶Of the pretious deathe of the iust. Cap. Cxxxiiii.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
